@@ -7,6 +7,6 @@ Willkommen! Hier findet Ihr Ort und Datum aller kommenden Family Picknicks.
 **Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli» 
 Via Scherzligweg 3 Minuten zu Fuss vom Bahnhof Thun entfernt.
 **Zeit:** Ab 15 Uhr bis ca 18 Uhr
-<h3>**Family Picknick** - Samstag 14. September 2019</h3>
+<h3>Family Picknick - Samstag 14. September 2019</h3>
 **Ort:** Schadaupark Thun, in der Nähe des Kinderspielplatzes.
 **Zeit:** Ab 15 Uhr bis ca 18 Uhr
