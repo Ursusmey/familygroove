@@ -1,5 +1,5 @@
 # familygroove 
-Willkommen! Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken:)<br>
+Willkommen! Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken :)<br>
 <h3>Family Picknick<br>Samstag 13. Juli 2019</h3>
 **Ort:** Schadaupark Thun, in der Nähe des Kinderspielplatzes.
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr
