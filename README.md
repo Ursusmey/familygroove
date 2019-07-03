@@ -1,8 +1,6 @@
 # familygroove 
 
-<body style="background":aqua>Text</body>
-
-Willkommen! Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken :)<br>
+</font color="blue">Willkommen!</font> Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken :)<br>
 <h4>Family Picknick<br>Samstag 13. Juli 2019</h4>
 **Ort:** Schadaupark Thun, in der Nähe des Kinderspielplatzes.
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr
