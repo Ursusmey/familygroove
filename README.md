@@ -1,5 +1,4 @@
-<h1>Willkommen auf der Website Family Groove!</h1>
-Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken :). Die Picknick-Daten auf der Website werden immer wieder mal aktualisiert.<br>
+<h2>Willkommen auf der Website Family Groove! Hier findet Ihr **Ort**, **Zeit** und **Datum** aller kommenden Family Picknicks.<br>Bis bald beim Picknicken :).</h2>
 
 <h2>Die Idee hinter Family Picknick:</h2>
 Ihr seid eine Familie mit Kindern. Ihr wollt auf einfache Weise andere Familien mit Kindern kennen lernen und mit anderen Familien und Kindern zusammenkommen und eine gute Zeit verbringen. Jede Familie brint ihr eigenes Picknick mit. Am besten so einpacken, dsas die Speisen und Getränke auch anderen angeboten werden können. Dann ergibt sich ein buntes vielfältiges Buffet.
