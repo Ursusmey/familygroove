@@ -1,7 +1,9 @@
-<h2>Willkommen auf der Website Family Groove! Hier findet Ihr Ort, Zeit und Datum aller kommenden Family Picknicks.<br>Bis bald beim Picknick :)</h2>
+<h2>Willkommen auf der Website Family Groove! Hier findet Ihr Ort, Zeit und Datum aller kommenden Family Picknicks. Bis bald beim Picknick : )</h2>
 
 <h3>Die Idee hinter Family Picknicks:</h3>
-Ihr seid eine Eltern mit Kindern. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien zusammenkommen und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Am besten so einpacken, dass die Speisen und Getränke, auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungs Buffet. **Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. 
+Ihr seid eine Eltern mit Kindern. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien zusammenkommen und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Am besten so einpacken, dass die Speisen und Getränke, auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungs Buffet. 
+
+**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. 
 
 <h3>Family Picknick<br>Samstag 10. August 2019</h3>
 **Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli» 
