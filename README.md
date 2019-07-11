@@ -22,5 +22,5 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern ke
 <h3>Die Idee hinter Family Groove:</h3>
 Ein Pinboard für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
 
-<h3>Wer steckt hinter Family Groove ?:</h3>
+<h3>Wer hinter Family Groove steckt:</h3>
 Eine Familie. Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
