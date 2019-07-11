@@ -1,4 +1,4 @@
-<h2>Willkommen!<br>Auf Family Groove findet Ihr Ort, Datum und Zeit aller aktuell geplanten Family Picknicks. Bis bald beim Picknicken : )</h2>
+<h2>Willkommen ! Auf Family Groove findet Ihr Ort, Datum und Zeit aller aktuell geplanten Family Picknicks. Bis bald beim Picknicken : )</h2>
 
 <h3>Family Picknick<br>Samstag 10. August 2019</h3>
 **Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli» 
