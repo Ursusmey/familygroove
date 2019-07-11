@@ -11,16 +11,16 @@ Via Scherzligweg 3 Minuten zu Fuss vom Bahnhof Thun entfernt.
 **Ort:** Schadaupark Thun, auf der Wiese in der Nähe des Kinderspielplatzes.
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr
 
-*Die Daten werden immer wieder aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
-Andere Familien einladen ist ausdrücklich erlaubt ; )*
+<h5>Die Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
+Andere Familien einladen ist ausdrücklich erlaubt ; )</h5>
 
 <h3>Die Idee hinter Family Picknicks:</h3>
-Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien zusammenkommen und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Am besten so einpacken, dass die Speisen und Getränke, auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungs Buffet. 
+<h4>Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien auf einer öffentlichen Wiese zusammenkommen, plaudern, spielen, essen, trinken und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass die Speisen und Getränke auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
 
-<**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher.
+**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher.
 
 <h3>Die Idee hinter Family Groove:</h3>
 Ein Pinboard für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
 
 <h3>Wer steckt hinter Family Groove ?:</h3>
-Eine Familie : ) Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2 jährig). 
+Eine Familie. Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
