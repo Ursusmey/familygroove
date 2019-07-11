@@ -1,10 +1,5 @@
 <h2>Willkommen auf der Website Family Groove! Hier findet Ihr Ort, Datum und Zeit und aller kommenden Family Picknicks. Bis bald beim Picknick : )</h2>
 
-<h3>Die Idee hinter Family Picknicks:</h3>
-Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien zusammenkommen und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Am besten so einpacken, dass die Speisen und Getränke, auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungs Buffet. 
-
-**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. 
-
 <h3>Family Picknick<br>Samstag 10. August 2019</h3>
 **Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli» 
 Via Scherzligweg 3 Minuten zu Fuss vom Bahnhof Thun entfernt.
@@ -19,8 +14,13 @@ Via Scherzligweg 3 Minuten zu Fuss vom Bahnhof Thun entfernt.
 <h4>Die Daten werden immer wieder aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
 Andere Familien einladen ist ausdrücklich erlaubt ; )</h4>
 
+<h3>Die Idee hinter Family Picknicks:</h3>
+Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern kennen lernen, mit anderen Familien zusammenkommen und eine gute Zeit verbringen. Jede Familie bringt ihr eigenes Picknick mit. Am besten so einpacken, dass die Speisen und Getränke, auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungs Buffet. 
+
+**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen am Boden: Zum Beispiel eine Picknick-Decke oder ein paar Badetücher.
+
 <h3>Die Idee hinter Family Groove:</h3>
 Ein Pin-Board für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
 
-<h3>Wer steckt hinter Family Groove:</h3>
+<h3>Wer steckt hinter Family Groove ?:</h3>
 Eine Familie : ) Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2 jährig). 
