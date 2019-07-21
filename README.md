@@ -15,8 +15,8 @@ Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
 **Ort:** Im Schadaupark Thun, auf der Wiese in der Nähe des Kinderspielplatzes.<br>
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr (open end).
 
-<h4>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
-Andere Familien einladen ist ausdrücklich erlaubt ; )</h4>
+<h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
+Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
 
 <h3>Die Idee hinter Family Picknicks:</h3>
 Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (und Grosseltern mit Grosskindern) kennen lernen, mit anderen Familien auf einer öffentlichen Wiese zusammenkommen, plaudern, spielen, essen, trinken und eine gute Zeit verbringen.
