@@ -21,7 +21,7 @@ Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
 <h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
 Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
 
-<h3>Wofür Family Picnic?:</h3>
+<h3>Family Picnic?:</h3>
 Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (und Grosseltern mit Grosskindern) kennen lernen. Ihr habt Lust mit anderen Familien auf einer öffentlichen Wiese zusammenzukommen, zu plaudern, zu spielen, zu essen, zu trinken und eine gute Zeit zu verbringen.
 
 **Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass die Speisen und Getränke auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
