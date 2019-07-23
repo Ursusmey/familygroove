@@ -1,4 +1,4 @@
-<h2>Willkommen!</h2>
+<h2>Willkommen !</h2>
   
 ![FamilyPicnic](familypicknickpic.jpg)
 
@@ -15,7 +15,7 @@ Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
 **Ort:** Im Schadaupark Thun, auf der Wiese in der Nähe des Kinderspielplatzes.<br>
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr (open end).
 
-<h3>Erkennungsmerkmal Family Picnic: Die Erdbeere.</h3>
+<h3>Das Erkennungsmerkmal vor Ort: Die Erdbeere.</h3>
 Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen. Falls ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit. So finden sich alle Familien die ans Family Picnic kommen einfacher.
 
 <h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
@@ -32,4 +32,4 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (u
 Ein Pinboard für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
 
 <h3>Wer hinter Family Groove steckt:</h3>
-Eine Familie aus Thun: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
+Eine Familie aus Thun. Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
