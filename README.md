@@ -1,4 +1,4 @@
-<h2>Willkommen !</h2>
+<h2>Willkommen!</h2>
   
 ![FamilyPicnic](familypicknickpic.jpg)
 
