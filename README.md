@@ -21,15 +21,15 @@ Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
 <h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen.
 Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
 
-<h3>Family Picnic?:</h3>
+<h3>Was ist Family Picnic?</h3>
 Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (und Grosseltern mit Grosskindern) kennen lernen. Ihr habt Lust mit anderen Familien auf einer öffentlichen Wiese zusammenzukommen, zu plaudern, zu spielen, zu essen, zu trinken und eine gute Zeit zu verbringen.
 
 **Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass die Speisen und Getränke auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
 
-**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und anderes Nützliches nach eigenem Gusto : )
+**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
 
-<h3>Die Idee hinter Family Groove:</h3>
+<h3>Die Idee hinter Family Groove</h3>
 Ein Pinboard für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
 
-<h3>Wer hinter Family Groove steckt:</h3>
+<h3>Wer hinter Family Groove steckt</h3>
 Eine Familie aus Thun. Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
