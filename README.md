@@ -29,7 +29,7 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (u
 **Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
 
 <h3>Die Idee hinter Family Groove:</h3>
-Ein Pinboard für unkomplizierte, weitgehend selbstorganisierte Familienaktivitäten. 
+Ein Pinboard für Familienaktivitäten. 
 
 <h3>Wer hinter Family Groove steckt:</h3>
 Eine Familie aus Thun. Das sind: Urs (Grafiker), Nora (Musikpädagogin) und ihre Tochter Ronja (bald 2-jährig).
