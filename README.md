@@ -2,10 +2,10 @@
   
 ![FamilyPicnic](familypicknickpic.jpg)
 
-<h2>Hier auf «Family Groove» findet Ihr Ort, Datum und Zeit aller zur Zeit geplanten Family Picnics. Bis bald am Picnic : )</h2>
+<h2>Hier auf «Family Groove» findet Ihr Ort, Datum und Zeit aller zur Zeit geplanten Family Picnics. Bis bald : )</h2>
 
 **Erkennungsmerkmal vor Ort: Die Erdbeere.** Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen.
-Wenn ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit, dann finden sich alle Familien, die zum Family Picknick kommen einfacher.
+Wenn ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit, dann finden sich alle Familien, die ans Family Picnic kommen einfacher.
 
 <h3>Family Picnic<br>Samstag 10. August 2019</h3>
 **Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli». 
