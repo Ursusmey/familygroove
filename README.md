@@ -23,7 +23,7 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (u
 
 **Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass die Speisen und Getränke auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
 
-**Das Erkennungsmerkmal vor Ort: Die Erdbeere.** Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen. Wenn ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit, dann finden sich alle Familien, die ans Family Picnic kommen einfacher.
+**Erkennungsmerkmal: Die Erdbeere.** Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen. Wenn ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit. So finden sich alle Familien die ans Family Picnic kommen einfacher.
 
 **Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
 
