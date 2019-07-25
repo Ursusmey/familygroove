@@ -33,3 +33,6 @@ Ein Pinboard für Familienaktivitäten.
 
 <h3>Wer hinter Family Groove steckt:</h3>
 Eine Familie aus Thun. Das sind:<br>Ronja (bald 2-jährig), Nora (Musikpädagogin) und Urs (Grafiker).
+
+© 2019
+
