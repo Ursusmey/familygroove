@@ -26,7 +26,7 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (u
 
 **Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass ein Teil der Speisen und Getränke auch anderen Familien angeboten werden kann. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
 
-**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
+**Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
 
 <h3>Die Idee hinter Family Groove:</h3>
 Ein Pinboard für Familienaktivitäten. 
