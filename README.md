@@ -24,7 +24,7 @@ Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
 <h3>Was ist Family Picnic ?</h3>
 Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (und Grosseltern mit Grosskindern) kennen lernen. Ihr habt Lust mit anderen Familien auf einer öffentlichen Wiese zusammenzukommen, zu plaudern, zu spielen, zu essen, zu trinken und eine gute Zeit zu verbringen.
 
-**Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass die Speisen und Getränke auch anderen Familien angeboten werden können. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
+**Mitbringen:** Jede Familie bringt ihr eigenes Picknick mit. Das Picknick am besten so einpacken, dass ein Teil der Speisen und Getränke auch anderen Familien angeboten werden kann. Dann ergibt sich ein buntes, vielfältiges Überraschungsbuffet. 
 
 **Was es sonst noch braucht:** Je nach Bedarf etwas zum draufsitzen auf der Wiese. Zum Beispiel eine Picknick-Decke oder ein paar Badetücher. Spielsachen für die kleinen Kinder und andere nützliche Tools nach eigenem Gusto.
 
