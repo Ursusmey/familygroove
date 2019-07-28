@@ -18,7 +18,7 @@ Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
 <h3>Erkennungsmerkmal vor Ort:<br>Die Erdbeere</h3>
 Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen. Falls ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit. So finden sich alle Familien die ans Family Picnic kommen einfacher.
 
-<h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen oder Family Groove auf Twitter folgen: https://twitter.com/FamilyGroove_ch Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
+<h3>Die Picknick-Daten werden von Zeit zu Zeit aktualisiert. Also am besten immer mal wieder hier vorbeischauen oder folge Family Groove auf [Twitter](https://twitter.com/FamilyGroove_ch). Andere Familien einladen ist ausdrücklich erlaubt ; )</h3>
 
 <h3>Was ist Family Picnic ?</h3>
 Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (und Grosseltern mit Grosskindern) kennen lernen. Ihr habt Lust mit anderen Familien auf einer öffentlichen Wiese zusammenzukommen, zu plaudern, zu spielen, zu essen, zu trinken und eine gute Zeit zu verbringen.
