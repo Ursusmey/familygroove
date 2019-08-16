@@ -4,10 +4,6 @@
 
 <h2>Hier auf «Family Groove» findet Ihr Ort, Datum und Zeit aller momentan geplanten Family Picnics. Bis bald : )</h2>
 
-<h3>Family Picnic<br>Samstag 10. August 2019</h3>
-**Ort:** Auf dem Rasendreieck zwischen dem «Kleistinseli» und dem «Unders Inseli». 
-Via Scherzligweg drei Minuten zu Fuss vom Bahnhof Thun entfernt.<br>
-**Zeit:** Ab 15 Uhr bis ca. 18 Uhr (open end).
 <h3>Family Picnic<br>Samstag 14. September 2019</h3>
 **Ort:** Im Schadaupark Thun, auf der Wiese beim Kinderspielplatz Seestr. 47a.<br>
 **Zeit:** Ab 15 Uhr bis ca. 18 Uhr (open end).
