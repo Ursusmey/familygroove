@@ -4,9 +4,6 @@
 
 <h2>Hier auf «Family Groove» findet Ihr Ort, Datum und Zeit aller momentan geplanten Family Picnics. Bis bald : )</h2>
 
-<h3>Family Picnic<br>Samstag 14. September 2019</h3>
-**Ort:** im Schadaupark Thun, auf der Wiese beim Kinderspielplatz Seestr. 47a.<br>
-**Zeit:** ab 15 Uhr bis ca. 18 Uhr (open end).
 <h3>Family Picnic<br>Samstag 5. Oktober 2019</h3>
 **Ort:** auf der Wiese am See beim Kinderspielplatz Hünibach.<br>
 **Zeit:** ab 15 Uhr bis ca. 18 Uhr (open end).
