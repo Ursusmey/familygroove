@@ -2,7 +2,7 @@
   
 ![FamilyPicnic](familypicknickpic.jpg)
 
-<h2>Hier auf Family Groove findet Ihr Ort, Datum und Zeit aller momentan geplanten Family Picnics. Aktuell sind keine Picnics geplant. Im Frühjahr 2021 gibt es wieder neue Family Picnics. Bis Bald!</h2>
+<h2>Hier auf Family Groove findet Ihr Ort, Datum und Zeit aller momentan geplanten Family Picnics. Aktuell sind keine Picnics geplant.</h2>
 
 <h3>Erkennungsmerkmal vor Ort:<br>Die Erdbeere</h3>
 Zum Beispiel seht ihr ein grosses Badetuch in Form einer Erdbeere am Boden liegen. Falls ihr etwas mit Erdbeeren drauf besitzt, nehmt es doch auch mit. So finden sich alle Familien, die ans Family Picnic kommen einfacher.
