@@ -20,5 +20,5 @@ Ihr seid eine Familie. Ihr wollt auf einfache Weise andere Eltern mit Kindern (u
 Ein Pinboard für Familienaktivitäten. 
 
 <h3>Wer hinter Family Groove steckt:</h3>
-Eine Familie aus Thun. Das sind:<br>Ronja (bald 3-jährig), Nora (Musikpädagogin) und Urs (Grafiker).
+Eine Familie aus Thun. Das sind:<br>Ronja, Nora und Urs.
 
